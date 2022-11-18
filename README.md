@@ -2,7 +2,9 @@
 
 ## 💫 About Me:
 💻 Programmer
+
 🐧 Linux User
+
 🥷 Weeb (I love anime)
 
 
