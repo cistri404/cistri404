@@ -1,3 +1,5 @@
+👋 Hi, I'm N0NS3NSE aka ifrx
+
 # 💫 About Me:
 💻 Programmer
 🐧 Linux User
