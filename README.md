@@ -1,5 +1,7 @@
 # 💫 About Me:
-Hi, I'm Ifrx
+💻 Programmer
+🐧 Linux User
+🥷 Weeb (I love anime)
 
 
 ## 🌐 Socials:
