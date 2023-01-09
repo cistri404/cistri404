@@ -1,4 +1,4 @@
-# 👋 Hi, I'm N0NS3NSE aka ifrx
+# 👋 Hi, I'm Z3roZap aka N0NS3NSE aka ifrx
 
 ## 💫 About Me:
 💻 Programmer
