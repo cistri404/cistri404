@@ -5,7 +5,7 @@
 
 🐧 Linux User
 
-🥷 Weeb (I love anime)
+🥷 Weeb
 
 
 ## 🌐 Socials:
