@@ -5,7 +5,7 @@
 
 🐧 Linux User
 
-🥷 Weeb
+🥷 Anime Watcher
 
 
 ## 🌐 Socials:
